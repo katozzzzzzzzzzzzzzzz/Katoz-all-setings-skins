@@ -1,0 +1,1 @@
+# Katoz-all-setings-skins
